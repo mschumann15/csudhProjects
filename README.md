@@ -1,1 +1,1 @@
-Projects from my time at Cal State University Dominguez Hills
+Projects from my time at California State University Dominguez Hills
